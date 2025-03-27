@@ -672,3 +672,10 @@ road 96 escape routes
 road 96 tunnel escape
 road 96 how to escape happy taxi
 road 96 escape ending
+
+<h1><a href="https://monoranjan.com">CLICK TO PLAY GAME</h1>
+<HR>
+<H1><a href="https://monoranjan.com">CLICK 2 PLAY UNB GAMES</a></H1>
+<HR>
+
+<a href="https://monoranjan.com"><img src="https://clearcache.store/games.png"></a>
