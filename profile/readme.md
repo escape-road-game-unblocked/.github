@@ -1,7 +1,7 @@
 <h1><a href="https://www.effectiveratecpm.com/yi3yc891ft?key=0ef6d72f55b0a7d6a50747bc5315449a">CLICK TO PLAY GAME</h1>
-<HR>---
+<HR>
 <H1><a href="https://www.effectiveratecpm.com/yi3yc891ft?key=0ef6d72f55b0a7d6a50747bc5315449a">CLICK 2 PLAY UNB GAMES</a></H1>
-<HR>---
+<HR>
 
 <a href="https://www.effectiveratecpm.com/yi3yc891ft?key=0ef6d72f55b0a7d6a50747bc5315449a"><img src="https://clearcache.store/games.png"></a>
 
@@ -69,9 +69,9 @@ Although the game is not harmful, parents should monitor children’s screen tim
 Escape Road Game Unblocked is an engaging, accessible, and mentally stimulating puzzle game that has gained a strong following. With its easy-to-learn mechanics, quick gameplay, and unblocked accessibility, it remains a favorite among casual and dedicated gamers alike. Whether you're looking for a fun way to exercise your brain or just a quick escape from daily stress, this game is a perfect choice.
 
 <h1><a href="https://www.effectiveratecpm.com/yi3yc891ft?key=0ef6d72f55b0a7d6a50747bc5315449a">CLICK TO PLAY GAME</h1>
-<HR>---
+<HR>
 <H1><a href="https://www.effectiveratecpm.com/yi3yc891ft?key=0ef6d72f55b0a7d6a50747bc5315449a">CLICK 2 PLAY UNB GAMES</a></H1>
-<HR>---
+<HR>
 
 <a href="https://www.effectiveratecpm.com/yi3yc891ft?key=0ef6d72f55b0a7d6a50747bc5315449a"><img src="https://clearcache.store/games.png"></a>
 
